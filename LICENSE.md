@@ -1,4 +1,4 @@
-
+Experience 3008 like never before with 3008 vip Scripts, the #1 Script. Includes aimbot and auto-upgrade for unbeatable performance.
 
 
 
